@@ -9,4 +9,3 @@ They turn and face the assembled
 troops, who all bow before them. Chewbacca growls and Artoo
 beeps with happiness.
 
-Roll Credits
