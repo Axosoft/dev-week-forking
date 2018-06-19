@@ -14,7 +14,7 @@ ____    __    ____  ___     .______    ________.
 
 ```
 
-Episode IV: A New Hope
+Episode IV: A New Bob Hope
 
 It is a period of civil war. Rebel spaceships,
 striking from a hidden base, have won their first
